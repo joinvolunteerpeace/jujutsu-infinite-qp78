@@ -1,4 +1,4 @@
-
+no-ban jujutsu infinite Script is the best jujutsu infinite Script, featuring anti-ban and undetectable. Safe and powerful for all your needs.
 
 
 
